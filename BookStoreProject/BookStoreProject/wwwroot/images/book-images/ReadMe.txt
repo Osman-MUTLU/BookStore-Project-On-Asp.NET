@@ -1,0 +1,1 @@
+Upload the images of the books by categorizing them here.
